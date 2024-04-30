@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning how to shape the future
 - 💞️ I’m looking to collaborate on anything disruptive and revolutionary
 - 📫 How to reach me is best via email: justin.melton@proservsolutions.biz 
-- 😄 Pronouns are for the birds. I will respect those who choose to identify as human beings, and even those who don't, but please don't make me put pronouns on my profile and I encourage you not to do the same.
+- 😄 Pronouns are for the birds. I will respect those who choose to identify as human beings, and even those who don't, but I won't put pronouns on my profile.
 - ⚡ Fun fact: The human head weighs 8 pounds.
 - ⚡ OK one more. I give you a tip. Go buy some Honda stock... Now get out of here your breath smells.
 
